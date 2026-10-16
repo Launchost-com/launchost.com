@@ -1,1 +1,1 @@
-# launchost.com
+# launchost.ai
